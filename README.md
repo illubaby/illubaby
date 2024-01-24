@@ -1,4 +1,3 @@
-- 👋 I’m @illubaby
 - 👀 I’m interested in playing badminton
 - 🌱 I’m currently learning CE
 
